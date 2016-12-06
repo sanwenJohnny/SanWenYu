@@ -1,4 +1,4 @@
 # SanWenYu
-my firest project
+my project
 
-Hi sanwenyu ,i wish you will be a greate man!love your live!
+Hi Sanwenyu ,i wish you will be a good man and love your live!
